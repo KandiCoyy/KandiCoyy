@@ -1,12 +1,8 @@
-- 👋 Hi, I’m @KandiCoyy
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
-<!---
-KandiCoyy/KandiCoyy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 🍀Hi,My name is @Kandi_Coyy
+- 😎im from Indonesia
+- 🔥My fav things its Play a game
+- 🎀And i like play Roblox&Pony town
+- 🗿I dont have any friends:)
+- 🌓i only have a bad days
+- 🪴and i hate be beautifull/pretty
+- 🤪i want to be normal&Be cool
